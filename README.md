@@ -11,4 +11,7 @@ Hashi.Muneyaki.97@icloud.com
 Furuta.Kiyohisa.1992@icloud.com
 NaokiSasada182@icloud.com
 AsukaMurayama183@icloud.com
-TomomiIshida181@icloudc.com
+TomomiIshida181@icloud.com
+SayuriKishima186@icloud.com
+RyoheiSuzuki179@icloud.com
+TaroSasada178@icloud.com

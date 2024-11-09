@@ -13,5 +13,8 @@ NaokiSasada182@icloud.com
 AsukaMurayama183@icloud.com
 TomomiIshida181@icloud.com
 SayuriKishima186@icloud.com
-RyoheiSuzuki179@icloud.com
 TaroSasada178@icloud.com
+VivianBlackburn021@icloud.com
+AllisonBrennan35@icloud.com
+Uehara.Yoshi.2511@icloud.com
+Tomita.Akikazu.1995@icloud.com
